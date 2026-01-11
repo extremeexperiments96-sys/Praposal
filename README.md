@@ -1,2 +1,0 @@
-# Praposal
-Wo ai ni ❤️
